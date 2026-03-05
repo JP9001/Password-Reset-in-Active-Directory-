@@ -2,7 +2,7 @@ Watch this video here !!!
 ### Password Reset 
 
 <https://loom.com/share/0d8969eade404b6eaff6c8060efddff3>
-## Password Reset Procedure
+
 
 ### Objective
 
